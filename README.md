@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @UltraExotic
+- 👀 I’m interested in Gaming and moding
+- 🌱 I’m currently learning School stuff
+- 📫 How to reach me Discord. UserName- Starships92
+- 😄 Pronouns: He/Him
